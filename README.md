@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @georgs8
 - 👀 I’m interested in sports and gaming. 
-- 🌱 I’m currently learning data anylatics 
+- 🌱 I’m currently learning about food
 - 💞️ I’m looking to collaborate on projects involving different types of sports models.
 - 📫 How to reach me ... 
 
